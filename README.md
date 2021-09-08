@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @benjvvk
+- 👀 I’m interested in How to up skill in Tech
+- 🌱 I’m currently learning Online class
+- 📫 How to reach me benjamas.von@kmutt.ac.th
